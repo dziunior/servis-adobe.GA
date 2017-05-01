@@ -1,0 +1,1 @@
+# servis-adobe.GA
